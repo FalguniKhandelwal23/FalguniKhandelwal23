@@ -35,4 +35,4 @@
   
 </div>
 
-<h1 align="center">Thank You For Visiting My Profile ;) </h1>
+<h1 align="center">Thank You For Visiting My Profile 🤗 </h1>
